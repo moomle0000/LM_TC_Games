@@ -3,7 +3,9 @@
 TC Games crack vip
 ![image](https://github.com/moomle0000/LM_TC_Games/assets/68758566/618aa1d0-4984-4b98-bbc6-6dd77477ce3e)
 
+https://download1.sigma-rt.com/tcgames/tmp/TC_Games_Global_3_0_Update_3813600_d12ecabc402b653b73a9ce7b3c1dc01b.exe
 
+TC_Games_Global_3_0_Update_3813600
 
 Download and install the program normally.
 
