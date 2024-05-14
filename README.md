@@ -6,6 +6,9 @@ TC Games crack vip
 
 
 Download and install the program normally.
+
 After that, proceed to download the LM TC_Games file.
+
 copy the file LM TC_Games.exe To the installation location 
+
 Afterwards, open the program LM TC_Games.exe .
